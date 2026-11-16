@@ -1,5 +1,5 @@
-i'll design all of this soon but im lazy asf rn
-i'm Kevin he/they
-you'll usually see me with my friend!
-don't b shy 2 cuddle we don't mind !! ^^
-int first , i usually don't like int first due 2 fear 
+<p align="center"> kevin &nbsp;he/they
+  <p align="center"> &nbsp;INT &nbsp;FIRST &nbsp;PLS &nbsp;!!!
+    <p align="center"> &nbsp;C+H &nbsp;always &nbsp;allowed &nbsp;^^
+      <p align="center"> &nbsp;im &nbsp;always &nbsp;with &nbsp;ethan &nbsp;<3
+        <p align="center"> &nbsp;dont &nbsp;b &nbsp;shy
